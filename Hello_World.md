@@ -2,3 +2,5 @@
 
 
 Zaebalsya uchit' programmirovanie
+
+Ladno wuchu)
